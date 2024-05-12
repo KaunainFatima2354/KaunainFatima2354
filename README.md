@@ -6,4 +6,4 @@ You can reach me through my email which is "kaunain2354@gmail.com"
 I have so far completed these languages - HTML , CSS , JAVASCRIPT , PYTHON
 ⚡ Fun fact: My hobbies are watching anime, so if you are a anime lover, we can be bestfriends buddy :-)
 
-✨ Looking forward t working with you! ✨ 
+✨ Looking forward to working with you! ✨ 
